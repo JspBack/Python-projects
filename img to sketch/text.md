@@ -1,0 +1,1 @@
+ÇALIŞMASI İÇİN KLASÖR DIŞINA ÇIKAR 
